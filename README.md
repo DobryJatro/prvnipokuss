@@ -1,4 +1,4 @@
-# Nadpis popisu (Dobry jatro)
+# Nadpis popisu (Dobry jatrooooo)
 tohle je eprvni pokus
 
 ## Podnadpis
